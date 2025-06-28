@@ -6,7 +6,7 @@ Account region
 
 I am not responsible for any misuse ⚠︎ 
 
-Follow me:  https://fsocitey.tiiny.site/
+Follow me:  https://fsocitey.neocities.org/
 
 Good luck ☺ 
 
@@ -20,6 +20,6 @@ Good luck ☺
 
 انا غير مسؤول عن اي سوء استخدام ⚠︎
 
-تابعني : https://fsocitey.tiiny.site/
+تابعني : https://fsocitey.neocities.org/
  
 بتوفيق ☺ 
